@@ -1,8 +1,8 @@
 - 55导航最新网址发布：专业福利导航，满足您欲望                                                 
                                                                                  
-- https://5555dh.com                                                                         
-                                                                                                               
-55导航永久域名：https://www.5555dh.com                                                                                   
+- https://55dh.co                                                                         
+                                                                                                                
+55导航永久域名： https://55dh.co                                                                                       
 55导航最新网址①：https://www.5555dh.cc  
 55导航最新网址②：https://www.5555dh.top                                              
 - 55导航地址 
